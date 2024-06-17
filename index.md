@@ -1,4 +1,4 @@
 ---
-title: Anachronistic Autodidact
+title: Anachronistic Autodidactisms
 ---
 
